@@ -6,10 +6,7 @@
 
 ![two](https://github.com/user-attachments/assets/055c7806-d491-486d-b95d-800189f354dc)
 
-![three](https://github.com/user-attachments/assets/e73f2186-61e5-446f-af99-eade39955e52)
-
 ![four](https://github.com/user-attachments/assets/bbb583e2-fe08-48e9-9c1e-5b55318d61e7)
-
 
 
 ## Summary
